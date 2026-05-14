@@ -1,4 +1,4 @@
-# 
+# Inkscape for macOS top Filter - blend modes and color correction offers the most advanced Inkscape for macOS filter, with blend modes and color correction. Ideal for professional
 
 
 
